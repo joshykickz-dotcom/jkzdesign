@@ -1,2 +1,0 @@
-# jkzdesign
-wed page
